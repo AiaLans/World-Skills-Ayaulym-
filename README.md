@@ -1,1 +1,2 @@
-# World-Skills-Ayaulym-
+Faizullayeva Ayaulym
+IS22-2A
